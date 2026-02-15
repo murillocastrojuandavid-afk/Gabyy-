@@ -1,2 +1,0 @@
-# Gabyy-
-Amor
